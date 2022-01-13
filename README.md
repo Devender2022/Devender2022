@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Devender singh 
+- 👀 I’m interested in automation, automobilies.
+- 🌱 I’m currently learning python, AUTOCAD, SOLIDWORKS, ANSYS.
+- 💞️ I’m looking to collaborate on AUTOMOBILE TORNAMENTS AND COMPETETION.
+- 📫 How to reach me By my e-mail Devendersingh2347@gmail.com
